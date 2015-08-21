@@ -1,1 +1,1 @@
-Hi,
+GitHub is crzy awesome dudeeeeeeeee!
